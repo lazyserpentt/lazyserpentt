@@ -8,6 +8,7 @@
 i'm a [[digital creator | coder | artist]](https://github.com/lazyserpentt) 🌸
 
 ++ i have anxiety and lots of paranoia, if i block you unwarrantedly sorry !!
+(literally #1 paranoid fuck, thanks sunny fuck you.)
 
 🌙 **interests**  
 — **hello kitty!!!** 
