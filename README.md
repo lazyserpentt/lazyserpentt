@@ -13,7 +13,10 @@ i'm a [[digital creator | coder | artist]](https://github.com/lazyserpentt) 🌸
 🌙 **interests**  
 — **hello kitty!!!** 
 — **moths!!!**
-— epic the musical :3c  
+
+— greek mythos :3c
+- deltarune
+- cookie run  
 — minecraft
 
 🌷 **current mood**  
