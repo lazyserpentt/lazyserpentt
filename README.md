@@ -14,8 +14,8 @@ i'm a [[digital creator | coder | artist]](https://github.com/lazyserpentt) 🌸
 — **hello kitty!!!** 
 — **moths!!!**
 — greek mythos :3c
-- deltarune
-- cookie run  
+— deltarune
+— cookie run  
 — minecraft
 
 🌷 **current mood**  
