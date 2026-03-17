@@ -1,5 +1,4 @@
-![](https://file.garden/ZuYDI_iCk3VglukI/meowmeowmeow.png)
-
+# Anthony's Intro!
 ![](https://singlecolorimage.com/get/ffc0cb/500x1)
 
   ### 🌿 About Me
