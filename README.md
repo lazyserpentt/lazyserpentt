@@ -4,7 +4,7 @@
 
   ### 🌿 About Me
 
-— hello, i'm anthony ^_^  
+— hello, i'm adrianna ^_^  
 i'm a [[digital creator | coder | artist]](https://github.com/lazyserpentt) 🌸
 
 ++ i have anxiety and lots of paranoia, if i block you unwarrantedly sorry !!
