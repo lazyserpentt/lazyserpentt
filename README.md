@@ -1,9 +1,10 @@
-# Anthony's Intro!
+![](https://file.garden/ZuYDI_iCk3VglukI/meowmeowmeow.png)
+
 ![](https://singlecolorimage.com/get/ffc0cb/500x1)
 
   ### 🌿 About Me
 
-— hello, i'm adrianna ^_^  
+— hello, i'm anthony ^_^  
 i'm a [[digital creator | coder | artist]](https://github.com/lazyserpentt) 🌸
 
 ++ i have anxiety and lots of paranoia, if i block you unwarrantedly sorry !!
